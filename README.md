@@ -10,7 +10,7 @@
 
 **POPULAR PLAYERS:** [5poke](https://github.com/5poke), [Gamblersi](https://github.com/gamblersi), [emariyaoi](https://github.com/emariyaoi), [timejumpduo](https://github.com/timejumpduo), [CONEXlONN](https://github.com/CONEXlONN), [tirgery123](https://github.com/tirgery123), [SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST), [evboMC](https://github.com/evboMC), [gambling-addict](https://github.com/gambling-addict), [clownfoe](https://github.com/clownfoe), [yvoisen](https://github.com/yvoisen), [Asrieluo](https://github.com/asrieluo), [qnakin](https://github.com/qnakin), [horroryaoi](https://github.com/horroryaoi), [yubelsrevenge](https://github.com/yubelsrevenge)
 
-**PRETTIEST PONIES:** [Fufuyio1206](https://github.com/FUFUYIO1206), [misfortunes-s](https://github.com/misfortunes-s), [kingofalejandro](https://github.com/kingofalejandro), [gorg97](https://github.com/gorg97), [WeepingArchangel](https://github.com/weepingarchangel), [faelightgex](https://github.com/faelightgex), [johtrio](https://github.com/johtrio), [whokilledmarkiplier](https://github.com/whokilledmarkiplier), [ironmaryy](https://github.com/ironmaryy), [velvettoru](https://github.com/velvettoru), [BlindfoldBandits](https://github.com/blindfoldbandits), [ccstinks22x](https://github.com/ccstinks22x), [dearchesire](https://github.com/dearcheshire), [stitched-scars](https://github.com/stitched-scars), [malepregnancy](https://github.com/malepregnancy), [uffohsnack](https://github.com/uffohsnack), [SFOTHS](https://github.com/SFOTHS), [thelasttwilight](https://github.com/thelasttwilight), [aesvic](https://github.com/aesvic), [exelreti](https://github.com/exelreti), [realdustsans](https://github.com/realdustsans), [sorbetflakes](https://github.com/sorbetflakes), [rooielle](https://github.com/rooielle), [piehiker](https://github.com/piehiker), [dogfangs](https://github.com/dogfangs), [lifeIover](https://github.com/lifeiover), [Roka-A-Triggermultifandom](https://github.com/roka-a-triggermultifandom), [renosinclair](https://github.com/renosinclair), [Timebattle](https://github.com/timebattle)
+**PRETTIEST PONIES:** [Fufuyio1206](https://github.com/FUFUYIO1206), [misfortunes-s](https://github.com/misfortunes-s), [kingofalejandro](https://github.com/kingofalejandro), [gorg97](https://github.com/gorg97), [WeepingArchangel](https://github.com/weepingarchangel), [faelightgex](https://github.com/faelightgex), [johtrio](https://github.com/johtrio), [whokilledmarkiplier](https://github.com/whokilledmarkiplier), [ironmaryy](https://github.com/ironmaryy), [velvettoru](https://github.com/velvettoru), [BlindfoldBandits](https://github.com/blindfoldbandits), [ccstinks22x](https://github.com/ccstinks22x), [dearchesire](https://github.com/dearcheshire), [stitched-scars](https://github.com/stitched-scars), [malepregnancy](https://github.com/malepregnancy), [uffohsnack](https://github.com/uffohsnack), [SFOTHS](https://github.com/SFOTHS), [thelasttwilight](https://github.com/thelasttwilight), [aesvic](https://github.com/aesvic), [exelreti](https://github.com/exelreti), [realdustsans](https://github.com/realdustsans), [sorbetflakes](https://github.com/sorbetflakes), [rooielle](https://github.com/rooielle), [piehiker](https://github.com/piehiker), [dogfangs](https://github.com/dogfangs), [lifeIover](https://github.com/lifeiover), [Roka-A-Triggermultifandom](https://github.com/roka-a-triggermultifandom), [renosinclair](https://github.com/renosinclair), [Timebattle](https://github.com/timebattle), [foxtartaglia](https://github.com/foxtartaglia)
 
 **ONLINE 24/7:** [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie), [01-800-PAPU](https://github.com/01-800-papu), [swoocket](https://github.com/swoocket), [TREEMARKER](https://github.com/treemarker), [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife), [zt4r-z](https://github.com/zt4r-z), [eggchannie](https://github.com/eggchannie), [accidentaldeath](https://github.com/accidentaldeath), [AKlANGELL](https://github.com/aklangell), [dimofyyy](https://github.com/dimofyyy), [puppetpainfulheart](https://github.com/puppetpainfulheart), [SodanGum](https://github.com/sodangum), [y2k1ttyz](https://github.com/y2k1ttyz)
 
@@ -111,6 +111,18 @@
 [holedwelling](https://github.com/holedwelling) is pony town's **JAPAN**
 
 [hamfoolish](https://github.com/hamfoolish) is pony town's **GREEN LANTERN**
+
+[sspacedoutz](https://github.com/sspacedoutz) is pony town's **SLINGSHOT** (phighting)
+
+[Cellubito](https://github.com/cellubito) is pony town's **TAPH**
+
+[winnietism](https://github.com/winnietism) is pony town's **WINNIE BOSKO**
+
+[100bottlesofglue](https://github.com/100bottlesofglue) is pony town's **SPOKEISHERE**
+
+[wlogeu](https://github.com/wlogeu) is pony town's **RED** (among us)
+
+[dawnbreezze](https://github.com/dawnbreezze) is pony town's **AOI KANZAKI**
 
 **I'm sorry if you weren't added, some of the nominations were deleted right before I started making the list. I created this account on July 3rd, so if you sent a nomination on July 3rd-4th and don't see the person you nominated in their category, it's highly likely that it was deleted, so you can resend through the strawpage if you'd like :)**
 
