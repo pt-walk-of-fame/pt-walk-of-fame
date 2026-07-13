@@ -1,6 +1,6 @@
 # THE PT WALK OF FAME
 
-***SCROLL TO BOTTOM IF YOU NOMINATED YOURSELF OR SOMEONE ELSE DURING JULY 3RD-4TH AND THEY WEREN'T ADDED***
+***SCROLL TO BOTTOM IF YOU NOMINATED YOURSELF OR SOMEONE ELSE ON JULY 3RD AND THEY WEREN'T ADDED***
 
 **Thank you so much to everyone who nominated someone! I'm so happy to say that I will be keeping the PTWOF going. Requests are back open! I will be adding people when I can from now on! Request someone through the strawpage, instructions are there!** ***https://ptstars.straw.page/***
 
@@ -124,5 +124,5 @@
 
 [dawnbreezze](https://github.com/dawnbreezze) is pony town's **AOI KANZAKI**
 
-**I'm sorry if you weren't added, some of the nominations were deleted right before I started making the list. I created this account on July 3rd, so if you sent a nomination on July 3rd-4th and don't see the person you nominated in their category, it's highly likely that it was deleted, so you can resend through the strawpage if you'd like :)**
+**I'm sorry if you weren't added, some of the nominations were deleted right before I started making the list. I created this account on July 3rd, so if you sent a nomination on July 3rd and don't see the person you nominated in their category, it's highly likely that it was deleted, so you can resend through the strawpage if you'd like :)**
 
