@@ -2,7 +2,7 @@
 
 ***SCROLL TO BOTTOM IF YOU NOMINATED YOURSELF OR SOMEONE ELSE ON JULY 3RD AND THEY WEREN'T ADDED***
 
-**If you are an honouree and this is your first time seeing the account, hi!! Don't worry, it's not an actual WALK, just an awards account!!**
+**If you are an honouree and this is your first time seeing the account, hi!! Don't worry, it's not an actual WALK, just an awards account!! If you'd like to be removed, send through the strawpage!!**
 
 **Thank you so much to everyone who nominated someone! I'm so happy to say that I will be keeping the PTWOF going and will be adding more people who get nominated when I can. Requests will be looked at once I finish making the stars for the current honourees!**
 
