@@ -74,13 +74,13 @@
 
 [BlindfoldBandits](https://github.com/blindfoldbandits) is pony town's **MANEPEAR**
 
-[sugarlova](https://github.com/sugarlova) is pony town's **CINNAMON COOKIE**
+[cinnalemons](https://github.com/cinnalemons) is pony town's **CINNAMON COOKIE**
 
 [evboMC](https://github.com/evbomc) is pony town's **EVBO_**
 
 [ilyYatta](https://github.com/ilyyatta) is pony town's **YATTA** (dandy's world)
 
-[Kai7netic](https://github.com/kai7netic) is pony town's **COSMO** (dandy's world)
+[CosmoThePastryy](https://github.com/CosmoThePastryy) is pony town's **COSMO** (dandy's world)
 
 [Asrieluo](https://github.com/asrieluo) is pony town's **RIBBIT**
 
