@@ -114,7 +114,7 @@
 
 [hamfoolish](https://github.com/hamfoolish) is pony town's **GREEN LANTERN**
 
-[sspacedoutz](https://github.com/sspacedoutz) is pony town's **SLINGSHOT** (phighting)
+[sspacedoutz](https://github.com/sspacedoutz) is pony town's **SLINGSHOT**
 
 [Cellubito](https://github.com/cellubito) is pony town's **TAPH**
 
