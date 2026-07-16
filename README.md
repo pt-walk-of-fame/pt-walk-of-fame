@@ -28,6 +28,8 @@
 
 [aesvic](https://github.com/aesvic) is pony town's **VERITY**
 
+[AKlANGELL](https://github.com/aklangell) is pony town's **ANGEL DEVIL**
+
 [ANAXAGOR4S](https://github.com/anaxagor4s) is pony town's **ANAXAGORAS**
 
 [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife) is pony town's **CONNOR** (detroit: become human)
@@ -119,6 +121,8 @@
 [pixstrs](https://github.com/pixstrs) is pony town's **ROIER**
 
 [puppetpainfulheart](https://github.com/puppetpainfulheart) is pony town's **WANDERER**
+
+[RE0-MIKAGE](https://github.com/re0-mikage) is pony town's **REO MIKAGE**
 
 [realdustsans](https://github.com/realdustsans) is pony town's **DUST SANS**
 
