@@ -142,6 +142,8 @@
 
 [mizicest](https://github.com/mizicest) is pony town's **MIZI**
 
+[mlgkent](https://github.com/mlgkent) is pony town's **JON KENT**
+
 [MrNovalite](https://github.com/mrnovalite) is pony town's **ASTRO NOVALITE**
 
 [MsCarolynne](https://github.com/mscarolynne) is pony town's **BOBETTE CAROLYNNE**
