@@ -120,8 +120,6 @@
 
 [ilyYatta](https://github.com/ilyyatta) is pony town's **YATTA THE PIÑATA**
 
-[jeffery2009lol](https://github.com/jeffery2009lol) is pony town's **JEFFERY** (class of '09)
-
 [jia-baoyu](https://github.com/jia-baoyu) is pony town's **WIFIES**
 
 [joosbocks](https://github.com/joosbocks) is pony town's **GREEN** (among us show)
