@@ -70,6 +70,8 @@
 
 [dawnbreezze](https://github.com/dawnbreezze) is pony town's **AOI KANZAKI**
 
+[demonbell3](https://github.com/demonbell3) is pony town's **CHARLIE MORNINGSTAR**
+
 [deviousduoz](https://github.com/deviousduoz) is pony town's **MAPICC**
 
 [duowithme](https://github.com/duowithme) is pony town's **CYAN** (among us show)
