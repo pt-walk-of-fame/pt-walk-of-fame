@@ -8,7 +8,7 @@
 
 **PRETTIEST PONIES:** [Fufuyio1206](https://github.com/FUFUYIO1206), [misfortunes-s](https://github.com/misfortunes-s), [kingofalejandro](https://github.com/kingofalejandro), [gorg97](https://github.com/gorg97), [WeepingArchangel](https://github.com/weepingarchangel), [faelightgex](https://github.com/faelightgex), [johtrio](https://github.com/johtrio), [whokilledmarkiplier](https://github.com/whokilledmarkiplier), [ironmaryy](https://github.com/ironmaryy), [velvettoru](https://github.com/velvettoru), [BlindfoldBandits](https://github.com/blindfoldbandits), [ccstinks22x](https://github.com/ccstinks22x), [dearcheshire](https://github.com/dearcheshire), [stitched-scars](https://github.com/stitched-scars), [malepregnancy](https://github.com/malepregnancy), [uffohsnack](https://github.com/uffohsnack), [SFOTHS](https://github.com/SFOTHS), [thelasttwilight](https://github.com/thelasttwilight), [aesvic](https://github.com/aesvic), [exelreti](https://github.com/exelreti), [realdustsans](https://github.com/realdustsans), [sorbetflakes](https://github.com/sorbetflakes), [rooielle](https://github.com/rooielle), [piehiker](https://github.com/piehiker), [dogfangs](https://github.com/dogfangs), [lifeIover](https://github.com/lifeiover), [Roka-A-Triggermultifandom](https://github.com/roka-a-triggermultifandom), [renosinclair](https://github.com/renosinclair), [Timebattle](https://github.com/timebattle), [foxtartaglia](https://github.com/foxtartaglia), [fawnshaveworms](https://github.com/fawnshaveworms), [elisxne](https://github.com/elisxne), [Uictim](https://github.com/uictim), [pupburger](https://github.com/pupburger), [yaasuhiro](https://github.com/yaasuhiro), [LAVIEDOTOK](https://github.com/laviedotok), [vatrinyasin](https://github.com/vatrinyasin)
 
-**ONLINE 24/7:** [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie), [01-800-PAPU](https://github.com/01-800-papu), [swoocket](https://github.com/swoocket), [TREEMARKER](https://github.com/treemarker), [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife), [eggchannie](https://github.com/eggchannie), [accidentaldeath](https://github.com/accidentaldeath), [AKlANGELL](https://github.com/aklangell), [dimofyyy](https://github.com/dimofyyy), [puppetpainfulheart](https://github.com/puppetpainfulheart), [SodanGum](https://github.com/sodangum), [y2k1ttyz](https://github.com/y2k1ttyz), [neverwanted2dance](https://github.com/neverwanted2dance), [AshesOfHerHalo](https://github.com/ashesofherhalo), [MOKABORABLE](https://github.com/mokadorable), [techrynx](https://github.com/techrynx), [therealcastiel](https://github.com/therealcastiel)
+**ONLINE 24/7:** [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie), [01-800-PAPU](https://github.com/01-800-papu), [swoocket](https://github.com/swoocket), [TREEMARKER](https://github.com/treemarker), [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife), [eggchannie](https://github.com/eggchannie), [accidentaldeath](https://github.com/accidentaldeath), [AKlANGELL](https://github.com/aklangell), [dimofyyy](https://github.com/dimofyyy), [puppetpainfulheart](https://github.com/puppetpainfulheart), [SodanGum](https://github.com/sodangum), [y2k1ttyz](https://github.com/y2k1ttyz), [neverwanted2dance](https://github.com/neverwanted2dance), [AshesOfHerHalo](https://github.com/ashesofherhalo), [MOKABORABLE](https://github.com/mokadorable), [techrynx](https://github.com/techrynx), [therealcastiel](https://github.com/therealcastiel), [dewittelurv](https://github.com/dewittelurv)
 
 **HEAVILY TINTED PONIES:** [sproutseedlymain](https://github.com/sproutseedlymain)
 
@@ -73,6 +73,8 @@
 [demonbell3](https://github.com/demonbell3) is pony town's **CHARLIE MORNINGSTAR**
 
 [deviousduoz](https://github.com/deviousduoz) is pony town's **MAPICC**
+
+[dewittelurv](https://github.com/dewittelurv) is pony town's **THEOBALDTHEBIRD**
 
 [duowithme](https://github.com/duowithme) is pony town's **CYAN** (among us show)
 
@@ -156,6 +158,8 @@
 
 [saps4flux](https://github.com/saps4flux) is pony town's **JOPHIEL**
 
+[SkeletalSomniac](https://github.com/skeletalsomniac) is pony town's **SLUMBERTALE SANS**
+
 [skwwigelf](https://github.com/skwwigelf) is pony town's **SKWISGAAR**
 
 [SodanGum](https://github.com/sodangum) is pony town's **CANTARELLA**
@@ -163,6 +167,8 @@
 [sorbetflakes](https://github.com/sorbetflakes) is pony town's **SMARTY PANTS**
 
 [sproutseedlymain](https://github.com/sproutseedlymain) is pony town's **SPROUT SEEDLY**
+
+[SQUEVIL](https://github.com/squevil) is pony town's **SQUIDDO**
 
 [sspacedoutz](https://github.com/sspacedoutz) is pony town's **SLINGSHOT**
 
