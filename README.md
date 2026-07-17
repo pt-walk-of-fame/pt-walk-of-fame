@@ -44,6 +44,8 @@
 
 [BassieBloomington](https://github.com/bassiebloomington) is pony town's **BASSIE BLOOMINGTON**
 
+[Blame-John](https://github.com/blame-john) is pony town's **SHEDLETSKY**
+
 [blehpigsterr](https://github.com/blehpigsterr) is pony town's **LILLY** (daycare story)
 
 [BlG-SHOT](https://github.com/blg-shot) is pony town's **SPAMTON**
@@ -181,6 +183,8 @@
 [seraphlazer](https://github.com/seraphlazer) is pony town's **HYPERLASER**
 
 [ShowMeYourTeeth](https://github.com/showmeyourteeth) is pony town's **BLU SNIPER**
+
+[shurilong](https://github.com/shurilong) is pony town's **COIL**
 
 [SkeletalSomniac](https://github.com/skeletalsomniac) is pony town's **SLUMBERTALE SANS**
 
