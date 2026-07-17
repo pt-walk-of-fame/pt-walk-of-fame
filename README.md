@@ -132,6 +132,8 @@
 
 [Lax1e](https://github.com/lax1e) is pony town's **MARSHALL THE FIRE PUP**
 
+[llauvey](https://github.com/llauvey) is pony town's **AUSTIN RUSSO**
+
 [malepregnancy](https://github.com/malepregnancy) is pony town's **SAPARATA**
 
 [MavaKorolev](https://github.com/mavakorolev) is pony town's **SHOTO TODOROKI**
