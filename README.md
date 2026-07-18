@@ -190,8 +190,6 @@
 
 [seraphlazer](https://github.com/seraphlazer) is pony town's **HYPERLASER**
 
-[ShowMeYourTeeth](https://github.com/showmeyourteeth) is pony town's **BLU SNIPER**
-
 [shurilong](https://github.com/shurilong) is pony town's **COIL**
 
 [SkeletalSomniac](https://github.com/skeletalsomniac) is pony town's **SLUMBERTALE SANS**
