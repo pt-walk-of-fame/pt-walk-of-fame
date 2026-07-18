@@ -14,7 +14,7 @@
 
 **CREATIVE GITHUB USERNAMES:** [KALININGRAD-OBLAST](https://github.com/KALININGRAD-OBLAST)
 
-**C+HERS:** [SweetMeIodys](https://github.com/sweetmeiodys), [Xaplastcore](https://github.com/xaplastcore), [weltita](https://github.com/weltita), [spinthir](https://github.com/spinthir)
+**C+HERS:** [SweetMeIodys](https://github.com/sweetmeiodys), [Xaplastcore](https://github.com/xaplastcore), [weltita](https://github.com/weltita), [spinthir](https://github.com/spinthir), [Lynxcified](https://github.com/lynxcified)
 
 **UNDERRATED PLAYERS:** [njqh](https://github.com/njqh), [oqullent](https://github.com/oqullent)
 
@@ -141,6 +141,8 @@
 [Lax1e](https://github.com/lax1e) is pony town's **MARSHALL THE FIRE PUP**
 
 [llauvey](https://github.com/llauvey) is pony town's **AUSTIN RUSSO**
+
+[Lynxcified](https://github.com/lynxcified) is pony town's **KNOCKOUT**
 
 [malepregnancy](https://github.com/malepregnancy) is pony town's **SAPARATA**
 
