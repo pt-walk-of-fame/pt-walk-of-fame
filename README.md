@@ -168,8 +168,6 @@
 
 [OV3RCA5T](https://github.com/ov3rca5t) is pony town's **CONTRACTEE**
 
-[Pathogen-Interface](https://github.com/pathogen-interface) is pony town's **ROCKET** (phighting)
-
 [piehiker](https://github.com/piehiker) is pony town's **ZE**
 
 [Pixelbrickz](https://github.com/pixelbrickz) is pony town's **THE SECOND COMING** (animator vs animation)
