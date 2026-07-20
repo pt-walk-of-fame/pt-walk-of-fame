@@ -230,6 +230,8 @@
 
 [OV3RCA5T](https://github.com/ov3rca5t) is pony town's **CONTRACTEE**
 
+[Pathogen-Interface](https://github.com/pathogen-interface) is pony town's **ROCKET** (phighting)
+
 [PennywisefansDNI](https://github.com/pennywisefansdni) is pony town's **PENNYWISE**
 
 [piehiker](https://github.com/piehiker) is pony town's **ZE**
