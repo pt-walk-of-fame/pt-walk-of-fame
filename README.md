@@ -102,7 +102,7 @@
 
 [eggchannie](https://github.com/eggchannie) is pony town's **PURPLE** (among us show)
 
-[elisxne](https://github.com/elisxne) is pony town's **REGECT**
+[elisxne](https://github.com/elisxne) is pony town's **THATMOB**
 
 [emmmzi](https://github.com/emmmzi) is pony town's **GEORGE RUSSELL**
 
