@@ -178,8 +178,6 @@
 
 [hamfoolish](https://github.com/hamfoolish) is pony town's **GREEN LANTERN**
 
-[hatter-of-hearts](https://github.com/hatter-of-hearts) is pony town's **MAX HATTER**
-
 [headnurseIRL](https://github.com/headnurseirl) is pony town's **HEAD NURSE**
 
 [holedwelling](https://github.com/holedwelling) is pony town's **JAPAN**
