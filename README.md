@@ -2,7 +2,7 @@
 
 **Thank you so much to everyone who nominated someone! I'm so happy to say that I will be keeping the PTWOF going and will be adding more people who get nominated when I can. If you want to be removed from your category at any point, let me know!**
 
-**Updates are very slow right now as I've gotten very busy. :) LAST UPDATE: July 22nd, 2026 @ 3:09M PST**
+**Updates are very slow right now as I've gotten very busy. :) LAST UPDATE: July 22nd, 2026 @ 3:09PM PST**
 
 **To request to remove someone problematic, please refer to the ATABOOK as it makes it easier to organize things and ensures it won't not send and I won't skim past it!! Thank you :D Messages on the ATA are sent to review so I can look at them privately, they won't be posted when you send and I won't approve them!! The person is 100% more likely to be removed if proof is provided.** **https://ptwalkoffamee.atabook.org/**
 
