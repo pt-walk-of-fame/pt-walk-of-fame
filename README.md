@@ -1,6 +1,8 @@
 # THE PT WALK OF FAME
 
-**If you want to be removed from your category at any point, let me know! Updates are slow right now as I've gotten very busy. :) LAST UPDATE: July 24th, 2026 @ 10:44PM PST**
+**If you want to be removed from your category at any point, let me know! Updates are slow right now as I've gotten very busy. :)**
+
+**LAST UPDATE: July 24th, 2026 @ 10:44PM PST**
 
 **To request to remove someone problematic, please refer to the ATABOOK as it makes it easier to organize things and ensures it won't not send and I won't skim past it!! Thank you :D Messages on the ATA are sent to review so I can look at them privately, they won't be posted when you send and I won't approve them!! The person is 100% more likely to be removed if proof is provided.** **https://ptwalkoffamee.atabook.org/**
 
