@@ -2,7 +2,7 @@
 
 **If you want to be removed from your category at any point, let me know! Updates are slow right now as I've gotten very busy. :)**
 
-**LAST UPDATE: July 27th, 2026 @ 9:25AM PST**
+**LAST UPDATE: July 27th, 2026 @ 9:56AM PST**
 
 **To request to remove someone problematic, please refer to the ATABOOK as it makes it easier to organize things and ensures it won't not send and I won't skim past it!! Thank you :D Messages on the ATA are sent to review so I can look at them privately, they won't be posted when you send and I won't approve them!! The person is 100% more likely to be removed if proof is provided.** **https://ptwalkoffamee.atabook.org/**
 
@@ -39,6 +39,8 @@
 [100bottlesofglue](https://github.com/100bottlesofglue) is pony town's **SPOKEISHERE**
 
 [141ZXR](https://github.com/141zxr) is pony town's **SOAP MACTAVISH**
+
+[2099s](https://github.com/2099s) is pony town's **MIGUEL O'HARA**
 
 [accidentaldeath](https://github.com/accidentaldeath) is pony town's **CHARA**
 
