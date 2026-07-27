@@ -2,7 +2,7 @@
 
 **If you want to be removed from your category at any point, let me know! Updates are slow right now as I've gotten very busy. :)**
 
-**LAST UPDATE: July 27th, 2026 @ 9:04AM PST**
+**LAST UPDATE: July 27th, 2026 @ 9:25AM PST**
 
 **To request to remove someone problematic, please refer to the ATABOOK as it makes it easier to organize things and ensures it won't not send and I won't skim past it!! Thank you :D Messages on the ATA are sent to review so I can look at them privately, they won't be posted when you send and I won't approve them!! The person is 100% more likely to be removed if proof is provided.** **https://ptwalkoffamee.atabook.org/**
 
@@ -33,6 +33,8 @@
 # CHARACTERS OF PONY TOWN (alphabetical order)
 
 [01-800-PAPU](https://github.com/01-800-papu) is pony town's **ALDO_GEO**
+
+[01yaoimaster](https://github.com/01yaoimaster) is pony town's **NORMAL NPC**
 
 [100bottlesofglue](https://github.com/100bottlesofglue) is pony town's **SPOKEISHERE**
 
@@ -406,6 +408,8 @@
 
 [sev-n7](https://github.com/sev-n7) is pony town's **007N7**
 
+[ShellzyFossilzianz](https://github.com/shellzyfossilzianz) is pony town's **THREE** (bfdi)
+
 [shurilong](https://github.com/shurilong) is pony town's **COIL**
 
 [siillymikayume](https://github.com/siillymikayume) is pony town's **MIKA KAGEHIRA**
@@ -517,8 +521,6 @@
 [Yaoi-shihoan](https://github.com/yaoi-shihoan) is pony town's **SHIHO HINOMORI**
 
 [yaoig0d](https://github.com/yaoig0d) is pony town's **YOUJI SAKIYAMA**
-
-[yaoimaster13](https://github.com/yaoimaster13) is pony town's **NORMAL NPC**
 
 [yvoisen](https://github.com/yvoisen) is pony town's **REGECT**
 
