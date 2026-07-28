@@ -1,6 +1,6 @@
 # THE PT WALK OF FAME
 
-**If you want to be removed from your category at any point, let me know! Updates are slow right now as I've gotten very busy. :)**
+**If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
 
 **LAST UPDATE: July 28th, 2026 @ 1:15M PST**
 
