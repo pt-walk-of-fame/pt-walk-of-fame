@@ -18,8 +18,6 @@
 
 **ONLINE 24/7:** [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie), [01-800-PAPU](https://github.com/01-800-papu), [swoocket](https://github.com/swoocket), [totaldramas](https://github.com/totaldramas), [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife), [MASQUERADE-PARTY](https://github.com/masquerade-party), [accidentaldeath](https://github.com/accidentaldeath), [AKlANGELL](https://github.com/aklangell), [dimofyyy](https://github.com/dimofyyy), [puppetpainfulheart](https://github.com/puppetpainfulheart), [SodanGum](https://github.com/sodangum), [y2k1ttyz](https://github.com/y2k1ttyz), [neverwanted2dance](https://github.com/neverwanted2dance), [AshesOfHerHalo](https://github.com/ashesofherhalo), [MOKABORABLE](https://github.com/mokadorable), [techrynx](https://github.com/techrynx), [therealcastiel](https://github.com/therealcastiel), [dewittelurv](https://github.com/dewittelurv), [RingmasterAI](https://github.com/ringmasterai), [iwsud](https://github.com/iwsud), [artfufu](https://github.com/artfufu), [denguemon](https://github.com/denguemon), [Dylan-Astro](https://github.com/dylan-astro), [70smusic](https://github.com/70smusic), [rrrashomon](https://github.com/rrrashomon), [Acesteroid](https://github.com/acesteroid)
 
-**HEAVILY TINTED PONIES:** [sproutseedlymain](https://github.com/sproutseedlymain), [Acid-batz](https://github.com/acid-batz), [brittlestars](https://github.com/brittlestars), [calic0catz](https://github.com/calic0catz)
-
 **TOP C+HERS:** [SweetMeIodys](https://github.com/sweetmeiodys), [Xaplastcore](https://github.com/xaplastcore), [weltita](https://github.com/weltita), [ramudaa](https://github.com/ramudaa), [Lynxcified](https://github.com/lynxcified), [gfpaw](https://github.com/gfpaw), [TIDE11Q](https://github.com/tide11q), [yaoiliker](https://github.com/yaoiliker), [wormpills](https://github.com/wormpills)
 
 **PRETTIEST GITHUBS:** [joosbocks](https://github.com/joosbocks), [Vexuliii](https://github.com/vexuliii), [fukounagirl](https://github.com/fukounagirl), [SC4RXOXO](https://github.com/sc4rxoxo)
@@ -29,6 +27,8 @@
 # SPECIAL MENTIONS
 
 **UNDERRATED PLAYERS:** [njqh](https://github.com/njqh), [oqullent](https://github.com/oqullent), [ponuoo](https://github.com/ponuoo), [fanielle](https://github.com/fanielle)
+
+**HEAVILY TINTED PONIES:** [sproutseedlymain](https://github.com/sproutseedlymain), [Acid-batz](https://github.com/acid-batz), [brittlestars](https://github.com/brittlestars), [calic0catz](https://github.com/calic0catz)
 
 **FRIENDLIEST PERSON OAT:** [Beanelli](https://github.com/beanelli), [R1SING-SUN](https://github.com/r1sing-sun)
 
