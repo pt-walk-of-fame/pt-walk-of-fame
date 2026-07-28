@@ -2,7 +2,7 @@
 
 **If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
 
-**LAST UPDATE: July 28th, 2026 @ 1:15M PST**
+**LAST UPDATE: July 28th, 2026 @ 4:33M PST**
 
 **To request to remove someone problematic, please refer to the ATABOOK as it makes it easier to organize things and ensures it won't not send and I won't skim past it!! Thank you :D Messages on the ATA are sent to review so I can look at them privately, they won't be posted when you send and I won't approve them!! The person is 100% more likely to be removed if proof is provided.** **https://ptwalkoffamee.atabook.org/**
 
