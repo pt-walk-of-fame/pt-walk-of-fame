@@ -20,7 +20,7 @@
 
 **TOP C+HERS:** [SweetMeIodys](https://github.com/sweetmeiodys), [Xaplastcore](https://github.com/xaplastcore), [weltita](https://github.com/weltita), [ramudaa](https://github.com/ramudaa), [Lynxcified](https://github.com/lynxcified), [gfpaw](https://github.com/gfpaw), [TIDE11Q](https://github.com/tide11q), [yaoiliker](https://github.com/yaoiliker), [wormpills](https://github.com/wormpills)
 
-**PRETTIEST GITHUBS:** [joosbocks](https://github.com/joosbocks), [Vexuliii](https://github.com/vexuliii), [fukounagirl](https://github.com/fukounagirl), [SC4RXOXO](https://github.com/sc4rxoxo)
+**PRETTIEST GITHUBS:** [joosbocks](https://github.com/joosbocks), [Vexuliii](https://github.com/vexuliii), [fukounagirl](https://github.com/fukounagirl), [SC4RXOXO](https://github.com/sc4rxoxo), [electrifypink](https://github.com/electrifypink)
 
 **CREATIVE GITHUB USERNAMES:** [KALININGRAD-OBLAST](https://github.com/KALININGRAD-OBLAST), [pwppy](https://github.com/pwppy), [ravensev](https://github.com/ravensev), [mortisfication](https://github.com/mortisfication), [sugurusmonkey](https://github.com/sugurusmonkey), [SUGERPUNK](https://github.com/sugerpunk), [smileypoop](https://github.com/smileypoop)
 
@@ -32,7 +32,7 @@
 
 **UNDERRATED PLAYERS:** [njqh](https://github.com/njqh), [oqullent](https://github.com/oqullent), [ponuoo](https://github.com/ponuoo), [fanielle](https://github.com/fanielle)
 
-**FRIENDLIEST PEOPLE OAT:** [Beanelli](https://github.com/beanelli), [R1SING-SUN](https://github.com/r1sing-sun), [electrifypink](https://github.com/electrifypink), [cosmicsourrollz](https://github.com/cosmicsourrollz), [Tordplushie](https://github.com/tordplushie)
+**FRIENDLIEST PEOPLE OAT:** [Beanelli](https://github.com/beanelli), [R1SING-SUN](https://github.com/r1sing-sun), [cosmicsourrollz](https://github.com/cosmicsourrollz), [Tordplushie](https://github.com/tordplushie)
 
 **COUNTESS OF PONY TOWN:** [DarlingCountess](https://github.com/darlingcountess)
 
