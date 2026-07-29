@@ -188,7 +188,7 @@
 
 [emmmzi](https://github.com/emmmzi) is pony town's **GEORGE RUSSELL**
 
-[ENUMAELlSH](https://github.com/ENUMAELlSH) is pony town's **GILGAMESH** (fate/grand order)
+[ENUMAELlSH](https://github.com/ENUMAELlSH) is pony town's **GILGAMESH** (fate series)
 
 [evboMC](https://github.com/evbomc) is pony town's **EVBO_**
 
@@ -256,7 +256,7 @@
 
 [horroryaoi](https://github.com/horroryaoi) is pony town's **YUJI ITADORI**
 
-[House-Of-Ulster](https://github.com/hound-of-ulster) is pony town's **CÚ CHULAINN** (fate/grand order)
+[Hound-Of-Ulster](https://github.com/hound-of-ulster) is pony town's **CÚ CHULAINN** (fate series)
 
 [hyacinthias](https://github.com/hyacinthias) is pony town's **IVORYCELLO**
 
