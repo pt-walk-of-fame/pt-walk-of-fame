@@ -1,5 +1,7 @@
 **PLEASE READ: The amount of gimmicks I've been getting saying mean things to me and calling me names simply because there are "already a lot of PT awards accounts" is ridiculous. People have also been saying I'm the reason PT awards accounts are losing value because when I made this account, a bunch of other accounts like this started being created. I made this FOR FUN and I CANNOT CONTROL WHAT OTHER PEOPLE DO OR IF THEY GET INSPIRED OFF OF ME. A lot of you seriously need to get a grip, the things some of you have been saying to me are downright cruel for NO reason. No, I am not going to be discontinuing or deleting this account, but it is incredibly demotivating and upsetting to see people anonymously insulting me and saying I "ruined PT awards accounts" quite frequently when the reason I made this account was for myself and others to have fun. LEAVE. ME. ALONE. Thank you for reading, I'll be adding more people to categories in a few days.**
 
+**TO ANY NEW AWARD ACCS THAT READ THIS: No, I am not asking you to delete your githubs or stop using them. I do not care and I am not upset with you, I am just speaking up against the nonsense people have been saying to me.**
+
 # THE PT WALK OF FAME
 
 **If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
