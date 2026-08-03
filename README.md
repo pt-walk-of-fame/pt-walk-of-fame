@@ -1,6 +1,6 @@
 **READ: Thank you for the kind words. I'm doing just fine and am not letting the people sending mean things in my gimmicks affect me. :)**
 
-**A REMINDER: If you aren't nominated, do not take it to heart. I try to add everyone who's nominated in gimmicks that send through, but at the end of the day, this account is for fun, managed by a random person, and it really does not matter if you're on it or not. I've seen some people say that these accounts make them feel bad about themselves because they're not on them. Everyone has pretty ponies and everyone is the character of PT that they want to be no matter if they're on a nomination acc or not. Keep doing what you guys do on PT, awards accs are only a small part of something bigger!!**
+**A REMINDER: If you aren't nominated, do not take it to heart. I try to add everyone who's nominated in gimmicks that send through, but at the end of the day, this account is for fun, managed by a random person, and it really does not matter if you're on it or not. I've seen some people say that these accounts make them feel bad about themselves because they're not on them. Everyone has pretty ponies and everyone is the character of PT that they want to be no matter if they're on a nomination acc or not. Keep doing what you guys do on PT, awards accs are only a small part of something bigger, they're really not that important!! Don't let them demotivate you or feel bad about yourself.**
 
 **PS: Happy one month of the PTWOF!**
 
