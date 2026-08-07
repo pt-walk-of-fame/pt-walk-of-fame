@@ -1,5 +1,7 @@
 # THE PT WALK OF FAME
 
+**THIS IS A CATEGORY AND TITLE ACCOUNT!!**
+
 **If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
 
 **LAST UPDATE: August 7th, 2026 @ 12:04PM PST** (some nominations were deleted so if you weren't added please resend!)
