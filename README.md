@@ -2,6 +2,8 @@
 
 **THIS IS A CATEGORY AND TITLE ACCOUNT!!**
 
+**HI GUYS IM BACK SORRY I WAS REALLY BUSY!!! ADDING MORE PEOPLE SOMETIME ON AUGUST 19TH PST TIME!! IF YOU'VE BEEN REQUESTING PLS SEND IT IN TODAY TOO SO THAT ITS FOR SURE IT DOESNT GET DELETED. TYSM!**
+
 **If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
 
 **LAST UPDATE: August 7th, 2026 @ 12:04PM PST** (some nominations were deleted so if you weren't added please resend!)
