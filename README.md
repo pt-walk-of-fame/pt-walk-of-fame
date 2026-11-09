@@ -1,6 +1,6 @@
 # THE PT WALK OF FAME
 
-# **hi guys, its the PTWOF! i've added all the nominations that i have on the strawpage, sorry i've been gone for so long. updates will be VERY incosistent because i'm busy with school and other stuff!! so sorry. my github is [01-800-PAPU](https://github.com/01-800-PAPU) if you want to reach out to me on my ata or find me and be friends :)**
+# **hi guys, its the PTWOF! i've added all the nominations that i have on the strawpage, sorry i've been gone for so long. updates will be VERY incosistent because i'm busy with school and other stuff!! so sorry. my github is [01-800-PAPU](https://github.com/01-800-PAPU) if you want to reach out to me on my ata or find me and be friends :) i haven't checked the ata because i got a new pc and cant log into atabook with the acc for this**
 
 **If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
 
