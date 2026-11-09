@@ -1,10 +1,10 @@
 # THE PT WALK OF FAME
 
-# **LMFAO sorry i didn't do it yesterday like i said i would something came up, but now the lists HAVE BEEN UPDATED!! NOT EVERYONE HAS BEEN ADDED BECAUSE I HAVE SOMETHING TO DO RN BUT IM GONNA BE ADDING EVERYONE ELSE SOON**
+# **hi guys, its the PTWOF! i've added all the nominations that i have on the strawpage, sorry i've been gone for so long. updates will be VERY incosistent because i'm busy with school and other stuff!! so sorry. my github is [01-800-PAPU](https://github.com/01-800-PAPU) if you want to reach out to me on my ata or find me and be friends :)**
 
 **If you want to be removed from your category at any point, let me know! Updates are based on my free time. :)**
 
-**LAST UPDATE: August 20th, 2026 @ 2:05PM PST**
+**LAST UPDATE: November 9th, 2026 @ 6:23PM AST**
 
 **To request to remove someone problematic, please refer to the ATABOOK as it makes it easier to organize things and ensures it won't not send and I won't skim past it!! Thank you :D Messages on the ATA are sent to review so I can look at them privately, they won't be posted when you send and I won't approve them!! The person is 100% more likely to be removed if proof is provided.** **https://ptwalkoffamee.atabook.org/**
 
@@ -14,13 +14,13 @@
 
 **WELL-KNOWN PLAYERS:** [5poke](https://github.com/5poke), [Gamblersi](https://github.com/gamblersi), [emariyaoi](https://github.com/emariyaoi), [timejumpduo](https://github.com/timejumpduo), [CONEXlONN](https://github.com/CONEXlONN), [tirgery123](https://github.com/tirgery123), [SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST), [evboMC](https://github.com/evboMC), [gambling-addict](https://github.com/gambling-addict), [yvoisen](https://github.com/yvoisen), [Asrieluo](https://github.com/asrieluo), [clownfoe](https://github.com/clownfoe), [qnakin](https://github.com/qnakin), [horroryaoi](https://github.com/horroryaoi), [yubelsrevenge](https://github.com/yubelsrevenge), [infugue](https://github.com/infugue), [100bottlesofglue](https://github.com/100bottlesofglue), [chick-habit](https://github.com/chick-habit), [Bigguykoi](https://github.com/bigguykoi), [arrowhazard](https://github.com/arrowhazard), [N1TEB0I](https://github.com/n1teb0i), [martycorn](https://github.com/martycorn), [STARPKMN](https://github.com/starpkmn), [5orrows](https://github.com/5orrows), [Moiemon](https://github.com/moiemon), [DollsMassacre](https://github.com/dollsmassacre), [NorthernShine](https://github.com/northernshine), [denguemon](https://github.com/denguemon)
 
-**PRETTIEST PONIES:** [Fufuyio1206](https://github.com/FUFUYIO1206), [misfortunes-s](https://github.com/misfortunes-s), [kingofalejandro](https://github.com/kingofalejandro), [gorg97](https://github.com/gorg97), [faelightgex](https://github.com/faelightgex), [johtrio](https://github.com/johtrio), [whokilledmarkiplier](https://github.com/whokilledmarkiplier), [lronmary](https://github.com/lronmary), [velvettoru](https://github.com/velvettoru), [BlindfoldBandits](https://github.com/blindfoldbandits), [ccstinks22x](https://github.com/ccstinks22x), [dearcheshire](https://github.com/dearcheshire), [stitched-scars](https://github.com/stitched-scars), [malepregnancy](https://github.com/malepregnancy), [uffohsnack](https://github.com/uffohsnack), [SFOTHS](https://github.com/SFOTHS), [thelasttwilight](https://github.com/thelasttwilight), [aesvic](https://github.com/aesvic), [exelreti](https://github.com/exelreti), [realdustsans](https://github.com/realdustsans), [sorbetflakes](https://github.com/sorbetflakes), [rooielle](https://github.com/rooielle), [piehiker](https://github.com/piehiker), [dogfangs](https://github.com/dogfangs), [lifeIover](https://github.com/lifeiover), [Roka-A-Triggermultifandom](https://github.com/roka-a-triggermultifandom), [renosinclair](https://github.com/renosinclair), [Timebattle](https://github.com/timebattle), [foxtartaglia](https://github.com/foxtartaglia), [fawnshaveworms](https://github.com/fawnshaveworms), [elisxne](https://github.com/elisxne), [Uictim](https://github.com/uictim), [yaasuhiro](https://github.com/yaasuhiro), [LAVIEDOTOK](https://github.com/laviedotok), [vatrinyasin](https://github.com/vatrinyasin), [Lax1e](https://github.com/lax1e), [slaughterwolf](https://github.com/slaughterwolf), [seraphlazer](https://github.com/seraphlazer), [DANZNC](https://github.com/danznc), [yaoiautism](https://github.com/yaoiautism), [starrbeery](https://github.com/starrbeery), [ArtistsLeafRibbon](https://github.com/artistsleafribbon), [housepanther](https://github.com/housepanther), [S3ASH0R3S](https://github.com/s3ash0r3s), [CheeCheeze](https://github.com/cheecheeze), [Radi0Br0adcaster](https://github.com/radi0br0adcaster), [tamonsbside](https://github.com/tamonsbside), [simon-henriksson](https://github.com/simon-henriksson), [iwanttoholdyourhand](https://github.com/iwanttoholdyourhand), [maveyy](https://github.com/maveyy), [Kruemblxzz](https://github.com/Kruemblxzz), [flrelise](https://github.com/flrelise), [princezammiest](https://github.com/princezammiest), [azpyiel](https://github.com/azpyiel), [LQDYTANO](https://github.com/lqdytano), [pawfectangel](https://github.com/pawfectangel), [puphacker](https://github.com/puphacker), [cutepolar](https://github.com/cutepolar), [BR0FLOVSKI](https://github.com/br0flovski), [soIeIy](https://github.com/soieiy), [Iovefool](https://github.com/iovefool), [yusions](https://github.com/yusions), [lostyaoi](https://github.com/lostyaoi), [Solyrvv](https://github.com/solyrvv), [mega-ambler](https://github.com/mega-ambler), [planetlords](https://github.com/planetlords), [metalphenomena](https://github.com/metaphenomena)
+**PRETTIEST PONIES:** [Fufuyio1206](https://github.com/FUFUYIO1206), [misfortunes-s](https://github.com/misfortunes-s), [kingofalejandro](https://github.com/kingofalejandro), [gorg97](https://github.com/gorg97), [faelightgex](https://github.com/faelightgex), [johtrio](https://github.com/johtrio), [whokilledmarkiplier](https://github.com/whokilledmarkiplier), [lronmary](https://github.com/lronmary), [velvettoru](https://github.com/velvettoru), [BlindfoldBandits](https://github.com/blindfoldbandits), [ccstinks22x](https://github.com/ccstinks22x), [dearcheshire](https://github.com/dearcheshire), [stitched-scars](https://github.com/stitched-scars), [malepregnancy](https://github.com/malepregnancy), [uffohsnack](https://github.com/uffohsnack), [SFOTHS](https://github.com/SFOTHS), [thelasttwilight](https://github.com/thelasttwilight), [aesvic](https://github.com/aesvic), [exelreti](https://github.com/exelreti), [realdustsans](https://github.com/realdustsans), [sorbetflakes](https://github.com/sorbetflakes), [rooielle](https://github.com/rooielle), [piehiker](https://github.com/piehiker), [dogfangs](https://github.com/dogfangs), [lifeIover](https://github.com/lifeiover), [Roka-A-Triggermultifandom](https://github.com/roka-a-triggermultifandom), [renosinclair](https://github.com/renosinclair), [Timebattle](https://github.com/timebattle), [foxtartaglia](https://github.com/foxtartaglia), [fawnshaveworms](https://github.com/fawnshaveworms), [elisxne](https://github.com/elisxne), [Uictim](https://github.com/uictim), [yaasuhiro](https://github.com/yaasuhiro), [LAVIEDOTOK](https://github.com/laviedotok), [vatrinyasin](https://github.com/vatrinyasin), [Lax1e](https://github.com/lax1e), [slaughterwolf](https://github.com/slaughterwolf), [seraphlazer](https://github.com/seraphlazer), [DANZNC](https://github.com/danznc), [yaoiautism](https://github.com/yaoiautism), [starrbeery](https://github.com/starrbeery), [ArtistsLeafRibbon](https://github.com/artistsleafribbon), [housepanther](https://github.com/housepanther), [S3ASH0R3S](https://github.com/s3ash0r3s), [CheeCheeze](https://github.com/cheecheeze), [Radi0Br0adcaster](https://github.com/radi0br0adcaster), [tamonsbside](https://github.com/tamonsbside), [simon-henriksson](https://github.com/simon-henriksson), [iwanttoholdyourhand](https://github.com/iwanttoholdyourhand), [maveyy](https://github.com/maveyy), [Kruemblxzz](https://github.com/Kruemblxzz), [flrelise](https://github.com/flrelise), [princezammiest](https://github.com/princezammiest), [azpyiel](https://github.com/azpyiel), [LQDYTANO](https://github.com/lqdytano), [pawfectangel](https://github.com/pawfectangel), [puphacker](https://github.com/puphacker), [cutepolar](https://github.com/cutepolar), [BR0FLOVSKI](https://github.com/br0flovski), [soIeIy](https://github.com/soieiy), [Iovefool](https://github.com/iovefool), [yusions](https://github.com/yusions), [lostyaoi](https://github.com/lostyaoi), [Solyrvv](https://github.com/solyrvv), [mega-ambler](https://github.com/mega-ambler), [planetlords](https://github.com/planetlords), [metalphenomena](https://github.com/metaphenomena), [HXTERICRANZZ](https://github.com/HXTERICRANZZ), [antoneIIi](https://github.com/antoneiii)
 
-**ONLINE 24/7:** [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie), [01-800-PAPU](https://github.com/01-800-papu), [swoocket](https://github.com/swoocket), [totaldramas](https://github.com/totaldramas), [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife), [MASQUERADE-PARTY](https://github.com/masquerade-party), [accidentaldeath](https://github.com/accidentaldeath), [AKlANGELL](https://github.com/aklangell), [dimofyyy](https://github.com/dimofyyy), [puppetpainfulheart](https://github.com/puppetpainfulheart), [SodanGum](https://github.com/sodangum), [y2k1ttyz](https://github.com/y2k1ttyz), [neverwanted2dance](https://github.com/neverwanted2dance), [AshesOfHerHalo](https://github.com/ashesofherhalo), [MOKABORABLE](https://github.com/mokadorable), [techrynx](https://github.com/techrynx), [therealcastiel](https://github.com/therealcastiel), [dewittelurv](https://github.com/dewittelurv), [RingmasterAI](https://github.com/ringmasterai), [iwsud](https://github.com/iwsud), [artfufu](https://github.com/artfufu), [Dylan-Astro](https://github.com/dylan-astro), [70smusic](https://github.com/70smusic), [rrrashomon](https://github.com/rrrashomon), [Acesteroid](https://github.com/acesteroid), [PorcelainDolls](https://github.com/porcelaindolls), [tragicburn](https://github.com/tragicburn), [Pawz-bit](https://github.com/pawz-bit), [pawpads](https://github.com/pawpads), [Chemicalshot](https://github.com/chemicalshot), [crushdow](https://github.com/crushdow), [GetJinx3d](https://github.com/getjinx3d), [Sproutkin](https://github.com/sproutkin), [Valmpyre](https://github.com/valmpyre), [constrz](https://github.com/constrz), [monoxiides](https://github.com/monoxiides), [clovenmoosee](https://github.com/clovenmoosee), [pinkpinkpink-mnm](https://github.com/pinkpinkpink-mnm), [kasurichu](https://github.com/kasurichu), [whispywhisper](https://github.com/whispywhisper)
+**ONLINE 24/7:** [sw33tsug4rcookie](https://github.com/sw33tsug4rcookie), [01-800-PAPU](https://github.com/01-800-papu), [swoocket](https://github.com/swoocket), [totaldramas](https://github.com/totaldramas), [AndroidSentByCyberLife](https://github.com/androidsentbycyberlife), [MASQUERADE-PARTY](https://github.com/masquerade-party), [accidentaldeath](https://github.com/accidentaldeath), [AKlANGELL](https://github.com/aklangell), [dimofyyy](https://github.com/dimofyyy), [puppetpainfulheart](https://github.com/puppetpainfulheart), [SodanGum](https://github.com/sodangum), [y2k1ttyz](https://github.com/y2k1ttyz), [neverwanted2dance](https://github.com/neverwanted2dance), [AshesOfHerHalo](https://github.com/ashesofherhalo), [MOKABORABLE](https://github.com/mokadorable), [techrynx](https://github.com/techrynx), [therealcastiel](https://github.com/therealcastiel), [dewittelurv](https://github.com/dewittelurv), [RingmasterAI](https://github.com/ringmasterai), [iwsud](https://github.com/iwsud), [artfufu](https://github.com/artfufu), [Dylan-Astro](https://github.com/dylan-astro), [70smusic](https://github.com/70smusic), [rrrashomon](https://github.com/rrrashomon), [Acesteroid](https://github.com/acesteroid), [PorcelainDolls](https://github.com/porcelaindolls), [tragicburn](https://github.com/tragicburn), [Pawz-bit](https://github.com/pawz-bit), [pawpads](https://github.com/pawpads), [Chemicalshot](https://github.com/chemicalshot), [crushdow](https://github.com/crushdow), [GetJinx3d](https://github.com/getjinx3d), [Sproutkin](https://github.com/sproutkin), [Valmpyre](https://github.com/valmpyre), [constrz](https://github.com/constrz), [monoxiides](https://github.com/monoxiides), [clovenmoosee](https://github.com/clovenmoosee), [pinkpinkpink-mnm](https://github.com/pinkpinkpink-mnm), [kasurichu](https://github.com/kasurichu), [whispywhisper](https://github.com/whispywhisper), [busstyfather](https://github.com/busstyfather), [zydr4t3](https://github.com/zydr4t3)
 
 **TOP C+HERS:** [SweetMeIodys](https://github.com/sweetmeiodys), [Xaplastcore](https://github.com/xaplastcore), [weltita](https://github.com/weltita), [ramudaa](https://github.com/ramudaa), [Lynxcified](https://github.com/lynxcified), [gfpaw](https://github.com/gfpaw), [TIDE11Q](https://github.com/tide11q), [yaoiliker](https://github.com/yaoiliker), [wormpills](https://github.com/wormpills), [lov3wires](https://github.com/lov3wires)
 
-**PRETTIEST GITHUBS:** [joosbocks](https://github.com/joosbocks), [Vexuliii](https://github.com/vexuliii), [fukounagirl](https://github.com/fukounagirl), [SC4RXOXO](https://github.com/sc4rxoxo), [electrifypink](https://github.com/electrifypink), [fuminoomi](https://github.com/fuminoomi), [scrsonmythighs](https://github.com/scrsonmythighs), [BALDURSGATE-3](https://github.com/baldursgate-3), [nyaniism](https://github.com/nyaniism)
+**PRETTIEST GITHUBS:** [joosbocks](https://github.com/joosbocks), [Vexuliii](https://github.com/vexuliii), [fukounagirl](https://github.com/fukounagirl), [SC4RXOXO](https://github.com/sc4rxoxo), [electrifypink](https://github.com/electrifypink), [fuminoomi](https://github.com/fuminoomi), [scrsonmythighs](https://github.com/scrsonmythighs), [BALDURSGATE-3](https://github.com/baldursgate-3), [nyaniism](https://github.com/nyaniism), [Onlyenliven](https://github.com/onlyenliven)
 
 **CREATIVE GITHUB USERNAMES:** [KALININGRAD-OBLAST](https://github.com/KALININGRAD-OBLAST), [pwppy](https://github.com/pwppy), [ravensev](https://github.com/ravensev), [mortisfication](https://github.com/mortisfication), [sugurusmonkey](https://github.com/sugurusmonkey), [SUGERPUNK](https://github.com/sugerpunk), [smileypoop](https://github.com/smileypoop), [t0rntodescent](https://github.com/t0rntodescent), [altruistdeviil](https://github.com/altruistdeviil), [parameowia](https://github.com/parameowia)
 
@@ -30,7 +30,7 @@
 
 **HEAVILY TINTED PONIES:** [sproutseedlymain](https://github.com/sproutseedlymain), [Acid-batz](https://github.com/acid-batz), [brittlestars](https://github.com/brittlestars), [MEATGRlNDER](https://github.com/MEATGRlNDER), [cherriiaxo](https://github.com/cherriiaxo)
 
-**UNDERRATED PLAYERS:** [njqh](https://github.com/njqh), [oqullent](https://github.com/oqullent), [ponuoo](https://github.com/ponuoo), [fanielle](https://github.com/fanielle), [celibrini](https://github.com/celibrini)
+**UNDERRATED PLAYERS:** [njqh](https://github.com/njqh), [oqullent](https://github.com/oqullent), [ponuoo](https://github.com/ponuoo), [fanielle](https://github.com/fanielle), [celibrini](https://github.com/celibrini), [CursedTides](https://github.com/cursedtides)
 
 **FRIENDLIEST PEOPLE OAT:** [Beanelli](https://github.com/beanelli), [R1SING-SUN](https://github.com/r1sing-sun), [cosmicsourrollz](https://github.com/cosmicsourrollz), Kite, [RE0-MIKAGE](https://github.com/re0-mikage)
 
@@ -49,6 +49,8 @@
 **TETCHOU'S HUSBAND:** [milessmoralez](https://github.com/milessmoralez)
 
 **ULTRON'S WIFE:** [Trickzterrr](https://github.com/trickzterrr)
+
+**PONY TOWN'S MOST WANTED:** [elli0tthec00ll](https://github.com/elli0tthec00ll)
 
 # CHARACTERS OF PONY TOWN (alphabetical order)
 
@@ -71,6 +73,8 @@
 [67kei](https://github.com/67kei) is pony town's **SP6** (enneahumans)
 
 [70smusic](https://github.com/70smusic) is pony town's **WHITEPINE PYROSCYTHE**
+
+[aave-aarnivalkea](https://github.com/aave-aarnivalkea) is pony town's **FLINS** (genshin impact)
 
 [abookslines](https://github.com/abookslines) is pony town's **ERASER HEAD**
 
@@ -117,6 +121,8 @@
 [Asrieluo](https://github.com/asrieluo) is pony town's **RIBBIT**
 
 [AutopsiedGore](https://github.com/autopsiedgore) is pony town's **DOUMA**
+
+[Avery-whatsinyourinventory](https://github.com/avery-whatsinyourinventory) is pony town's **COLDIFIED**
 
 [ayatosbathwater](https://github.com/ayatosbathwater) is pony town's **AYATO**
 
@@ -170,6 +176,8 @@
 
 [burningsins](https://github.com/burningsins) is pony town's **KEIGO TAKAMI**
 
+[busstyfather](https://github.com/busstyfather) is pony town's **MONA** (genshin impact)
+
 [camycatyy](https://github.com/camycatyy) is pony town's **NIKO** (oneshot)
 
 [CANNIVORE](https://github.com/cannivore) is pony town's **YAMI YUGI**
@@ -211,6 +219,8 @@
 [cocopuuffs](https://github.com/cocopuuffs) is pony town's **OCHAKO URARAKA**
 
 [coltlandtwins](https://github.com/coltlandtwins) is pony town's **RYLAND GRACE**
+
+[colunAAAA](https://github.com/colunaaaa) is pony town's **MARKIPLIER**
 
 [computerfanaticc](https://github.com/computerfanaticc) is pony town's **HARLEY SAWYER**
 
@@ -428,6 +438,8 @@
 
 [Hound-Of-Ulster](https://github.com/hound-of-ulster) is pony town's **CÚ CHULAINN** (fate series)
 
+[HXTERICRANZZ](https://github.com/HXTERICRANZZ) is pony town's **GOKU**
+
 [hyacinthias](https://github.com/hyacinthias) is pony town's **IVORYCELLO**
 
 [i-ate-your-bread](https://github.com/i-ate-your-bread) is pony town's **SHOREKEEPER**
@@ -460,7 +472,11 @@
 
 [itstaeyig](https://github.com/itstaeyig) is pony town's **SIGEWINNIE**
 
+[Iwasbehindit](https://github.com/iwasbehindit) is pony town's **ALEX KRALIE**
+
 [IZntZkeeterz](https://github.com/IZntZkeeterz) is pony town's **ITZSKEETXD662**
+
+[jay1ngee](https://github.com/jay1ngee) is pony town's **JAYINGEE**
 
 [jeongtaeui](https://github.com/jeongtaeui) is pony town's **JEONG TAEUI**
 
@@ -511,6 +527,8 @@
 [LAWRlE](https://github.com/lawrle) is pony town's **LAWRIE**
 
 [Lax1e](https://github.com/lax1e) is pony town's **MARSHALL THE FIRE PUP**
+
+[lcorp-wingfounder](https://github.com/lcorp-wingfounder) is pony town's **AYIN** (lobotomy corporation)
 
 [littleapplemuffins](https://github.com/littleapplemuffins) is pony town's **AQUA** (deltarune)
 
@@ -622,6 +640,8 @@
 
 [nezoshokii](https://github.com/nezoshokii) is pony town's **IAMSTORMZ**
 
+[NikaMokochi](https://github.com/nikamokochi) is pony town's **PIZZA GUY** (pizza game beta)
+
 [NikkiFreemann](https://github.com/nikkifreemann) is pony town's **NIKKI FREEMAN**
 
 [njqh](https://github.com/njqh) is pony town's **HANK ANDERSON**
@@ -644,6 +664,8 @@
 
 [onegatypeak](https://github.com/onegatypeak) is pony town's **ONE** (bfdi)
 
+[Onlyenliven](https://github.com/onlyenliven) is pony town's **BIG MAC** (mlp)
+
 [OrangeDeltarune](https://github.com/orangedeltarune) is pony town's **LOOKOUT3D**
 
 [OV3RCA5T](https://github.com/ov3rca5t) is pony town's **CONTRACTEE**
@@ -651,6 +673,8 @@
 [Overcastrayne](https://github.com/Overcastrayne) is pony town's **FUJIKO MINE**
 
 [owlstice](https://github.com/owlstice) is pony town's **JACK FROST**
+
+[pachuchuri](https://github.com/pachuchuri) is pony town's **PATCHOULI KNOWLEDGE**
 
 [Pale-Garden](https://github.com/pale-garden) is pony town's **SWIGHT**
 
@@ -673,6 +697,8 @@
 [PennywisefansDNI](https://github.com/pennywisefansdni) is pony town's **PENNYWISE**
 
 [perishallmortals](https://github.com/perishallmortals) is pony town's **NOELLE HOLIDAY**
+
+[PIanetlords](https://github.com/pianetlords) is pony town's **BRIGHTEYES**
 
 [piehiker](https://github.com/piehiker) is pony town's **ZE**
 
@@ -713,6 +739,8 @@
 [PWESSURE](https://github.com/pwessure) is pony town's **DEEP SEA BUNNY**
 
 [pyroprincess](https://github.com/pyroprincess) is pony town's **PULSEMAN**
+
+[quiet-prince](https://github.com/quiet-prince) is pony town's **BUCKY BARNES**
 
 [R0DRICK-HEFFLEY](https://github.com/r0drick-heffley) is pony town's **RODRICK HEFFLEY**
 
@@ -888,9 +916,15 @@
 
 [thelasttwilight](https://github.com/thelasttwilight) is pony town's **JOHNNY STORM**
 
+[THEMOONHAUNTS-YOU](https://github.com/themoonhaunts-you) is pony town's **SANS**
+
 [therealcastiel](https://github.com/therealcastiel) is pony town's **CASTIEL**
 
+[theresonatingpulse](https://github.com/theresonatingpulse) is pony town's **COOLER BOOMBOX**
+
 [TheRoseOfDawn](https://github.com/theroseofdawn) is pony town's **AMY ROSE**
+
+[thesorrowingbody](https://github.com/thesorrowingbody) is pony town's **SUNDAY** (honkai star rail)
 
 [TheStarOfTheShoww](https://github.com/thestaroftheshoww) is pony town's **DANDY DANCIFER**
 
@@ -923,6 +957,8 @@ Kite is pony town's **KITE** (hxh)
 [ttrevorphilips](https://github.com/ttrevorphilips) is pony town's **MICHAEL DE SANTA**
 
 [Uictim](https://github.com/uictim) is pony town's **THE DARK LORD** (animator vs animation)
+
+[UKofGreatBritain](https://github.com/ukofgreatbritain) is pony town's **ENGLAND**
 
 [Valmpyre](https://github.com/valmpyre) is pony town's **KIERAN VALENTINE**
 
@@ -972,6 +1008,8 @@ Kite is pony town's **KITE** (hxh)
 
 [Xingqiukisser](https://github.com/xingqiukisser) is pony town's **XINGQIU**
 
+[xxleoloserxx](https://github.com/xxleoloserxx) is pony town's **BARBARA PEGG**
+
 [y2k1ttyz](https://github.com/y2k1ttyz) is pony town's **KATIE B**
 
 [yaasuhiro](https://github.com/yaasuhiro) is pony town's **YASUHIRO HAGAKURE**
@@ -981,6 +1019,8 @@ Kite is pony town's **KITE** (hxh)
 [Yaoi-shihoan](https://github.com/yaoi-shihoan) is pony town's **SHIHO HINOMORI**
 
 [yaoiliker](https://github.com/yaoiliker) is pony town's **STAN MARSH**
+
+[yurinpd](https://github.com/yurinpd) is pony town's **SANCHO** (limbus company)
 
 [yusions](https://github.com/yusions) is pony town's **2HOLLIS**
 
